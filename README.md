@@ -6,6 +6,7 @@
 
 <div align="center">
 
+O(∩_∩)O
 
 ╰── ⋅ ⋅ ──
 [strawpage](https://rainbowinthedark.straw.page/) |
