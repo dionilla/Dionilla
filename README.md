@@ -2,8 +2,7 @@
 
 <div align="center">
   
-<img width="673" height="371" alt="IMG_7344-removebg-preview" src="https://github.com/user-attachments/assets/20e9eb41-9d1a-48a7-b991-c580dd2ff2d8" />
-
+  <img width="2123" height="1170" alt="IMG_7344 (1)" src="https://github.com/user-attachments/assets/0da6f946-38cb-4acc-b0e7-1ed0f23e91c8" />
 
 <div align="center">
 
